@@ -1,1 +1,1 @@
-# Sadaya-scoreboard
+# Sadayah I. scoreboard
